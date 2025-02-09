@@ -1,6 +1,6 @@
-# Jackpocity Casino Review
-## [Jackpocity Casino Online Login](https://bit.ly/shorturlsss)
-## [Jackpocity Casino Register](https://bit.ly/shorturlsss)
+# Jackpotcity Casino Review
+## [Jackpotcity Casino Online Login](https://bit.ly/shorturlsss)
+## [Jackpotcity Casino Register](https://bit.ly/shorturlsss)
 
 JackpotCity Casino Review, established in 1998, has solidified its reputation as a leading online gaming platform. Licensed by the Malta Gaming Authority and regulated by the Kahnawake Gaming Commission, it offers a secure and fair gaming environment. 
 
